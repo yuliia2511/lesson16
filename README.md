@@ -1,0 +1,1 @@
+Homework: Зверстати макет Our team - https://www.figma.com/file/JQ5Tv09MikgxVxf0K5WxqQ/our_team?node-id=1%3A2
